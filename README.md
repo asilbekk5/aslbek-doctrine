@@ -22,4 +22,18 @@ Free to share and adapt with credit. No commercial use.
 
 ---
 
+## ✍️ Author
+
+**Aslbek Islomov**  
+Born: January 17, 2008  
+Location: Uzbekistan  
+📧 Email: asilbekislomov90@gmail.com
+📱 Telegram: [@GOLD_FS](https://t.me/GOLD_FS)
+
+This theory and simulation concept were independently developed by Aslbek Islomov and published under the Aslbek Doctrine.
+
+All rights reserved unless stated otherwise.
+
+---
+
 © 2025 Aslbek Islomov
